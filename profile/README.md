@@ -28,4 +28,4 @@ If you have any questions or comments about any of the projects in this profile,
 
 - Email: [contact@kremilly.com](mailto:contact@kremilly.com)
 
-Thank you for visiting the Kremilly Archives!****
+Thank you for visiting the Kremilly Archives!
